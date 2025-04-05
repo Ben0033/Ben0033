@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Ben0033
+- 👋 Hi, I’m @Benji0033
 - 👀 I’m interested in watching animes, learning other languages, gaming
 - 🌱 I’m currently learning spanish
 - 💞️ I’m looking to collaborate on web project....
